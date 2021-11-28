@@ -1,3 +1,3 @@
-🐣 [Twitter](https://twitter.com/jamesrwhite)
+🐦 [Twitter](https://twitter.com/jamesrwhite)
 
-👔 [LinkedIn](https://linkedin.com/in/jameswhite15)
+👨🏻‍💼 [LinkedIn](https://linkedin.com/in/jameswhite15)
